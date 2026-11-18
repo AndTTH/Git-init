@@ -1,0 +1,1 @@
+Két ember megy a sivatagban. Már majdnem éhenhaltak, amikor szomjanhaltak.
